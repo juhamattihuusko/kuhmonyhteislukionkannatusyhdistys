@@ -18,7 +18,7 @@ Yhdistys on julkaissut seuraavat ylioppilasmatrikkelit:
 
 Kannatusyhdistys jatkaa toimintaansa ja toivoo jäsenikseen lukion kasvatteja, jotka ovat halukkaita tukemaan lukion toimintaa muuttuvassa ympäristössä.
 
-<img src="matrikkeli2019.jpg"></img>
+<img src="matrikkeli2019.jpg" width=500px></img>
 
 LIITY JÄSENEKSI JA TUE TOIMINTAAMME!
 
