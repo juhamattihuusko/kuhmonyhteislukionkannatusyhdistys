@@ -12,8 +12,13 @@ Yhdistys on julkaissut seuraavat ylioppilasmatrikkelit:
 * (edelliset yhdessä ostettuna yhteensä 30 €)
 * Kuhmon yhteislukion ylioppilaat 1977-1980 (20 €)
 
+<img src="matrikkeli1-200x300.jpg"></img>
+<img src="matrikkeli2-200x300.jpg"></img>
+<img src="matrikkeli3-200x300.jpg"></img>
+
 Kannatusyhdistys jatkaa toimintaansa ja toivoo jäsenikseen lukion kasvatteja, jotka ovat halukkaita tukemaan lukion toimintaa muuttuvassa ympäristössä.
 
+<img src="matrikkeli2019.jpg"></img>
 
 LIITY JÄSENEKSI JA TUE TOIMINTAAMME!
 
