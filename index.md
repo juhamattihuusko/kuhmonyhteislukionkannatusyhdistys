@@ -1,3 +1,5 @@
+<img src="cropped-lukio2018.jpg"></img>
+
 Kuhmon yhteislukion kannatusyhdistys perustettiin kesällä 2001 tarkoituksena tukea eri tavoin Kuhmon yhteislukion toimintaa.
 
 Yhdistys ylläpitää yhteyksiä Kuhmon yhteislukion nykyisiin ja entisiin opettajiin ja opiskelijoihin, järjestää toimintansa tueksi erilaisia tapahtumia ja harjoittaa julkaisutoimintaa.
